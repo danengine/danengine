@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://danengine.tech/](https://danengine.tech/)
 
-- 📫 How to reach me **daniloeslawanmusic23@gmail.com**
+- 📫 How to reach me **daaniloeslawan@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
